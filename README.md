@@ -1,10 +1,14 @@
 - 👋 Hi, I’m @Ekhtearhossain
-- 👀 I’m interested in ...
-- 🌱 I’m currently learning ...
-- 💞️ I’m looking to collaborate on ...
-- 📫 How to reach me ...
+- 👀 I’m interested in .. Online JOb.
+- 🌱 I’m currently learning ...Digital Markating, And Serviced (DATA Entry)... 
+- 💞️ I’m looking to collaborate on ... Fiverr.  Vertual assistant,
+- 📫 How to reach me ... On Fiverr>>>>>  https://www.fiverr.com/mdekhtearhosain?up_rollout=true
+       Facebook,>>>>  https://www.facebook.com/smekhtear.asik.5/photos
 
-<!-am--
+
+
+
+<!---
 Ekhtearhossain/Ekhtearhossain is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 You can click the Preview link to take a look at your changes.
 --->
@@ -43,3 +47,5 @@ Contact me.,
 Facebook,>>>>  https://www.facebook.com/smekhtear.asik.5/photos
  My Linkedin >>> https://www.linkedin.com/feed/
 InsTagram>  https://www.instagram.com/mdekhtearhossain/
+
+
