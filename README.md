@@ -1,8 +1,8 @@
-- 👋 Hi, I’m @Md.Ekhtear hossain
-- 👀 I’m interested in .. Online JOb.
-- 🌱 I’m currently learning ...Digital Markating, And Serviced (DATA Entry)... 
-- 💞️ I’m looking to collaborate on ... Fiverr.  Vertual assistant,
-- 📫 How to reach me ... On Fiverr>>>>>  https://www.fiverr.com/mdekhtearhosain?up_rollout=true
+  👋 Hi, I’m @Md.Ekhtear hossain
+  👀 I’m interested in .. Online JOb.
+  🌱 I’m currently learning ...Digital Markating, And alrady I Provide Serviced DATA Entry.. like >> Data Entry, Web Research, Copy paste job,lead generation,Email       signature, Email Collection, PDF to Word/Excel, Web Scraping,B2B Lead generation, File conversion, Typing In Excel or Word,
+  💞️ I’m looking to collaborate on ... Fiverr.  Vertual assistant,
+  📫 How to reach me ... On Fiverr>>>>>  https://www.fiverr.com/mdekhtearhosain?up_rollout=true
        Facebook,>>>>  https://www.facebook.com/smekhtear.asik.5/photos
 
 
