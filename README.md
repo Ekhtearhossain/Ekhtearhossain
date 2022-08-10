@@ -7,8 +7,7 @@
   💞️ I’m looking to collaborate on ... Fiverr.  Vertual assistant,
   
   📫 How to reach me ... On Fiverr>>>>>  https://www.fiverr.com/mdekhtearhosain?up_rollout=true
-  
-       Facebook,>>>>  https://www.facebook.com/smekhtear.asik.5/photos
+    Facebook,>>>>  https://www.facebook.com/smekhtear.asik.5/photos
 
 
 
